@@ -1,6 +1,6 @@
 # Tatiana Litvak
 
-Tel: +79581110904;  FB:[Litvak](https://www.facebook.com/tatiana.litvak.315);  Linkedin: [Litvak](linkedin.com/in/tatiana-litvak-00603118a);  TM: [Litvak](https://t.me/Tatiana_Litvak)
+Tel: +79581110904;  FB:[litvak](https://www.facebook.com/tatiana.litvak.315);  Linkedin: [litvak](linkedin.com/in/tatiana-litvak-00603118a);  Tg: [litvak](https://t.me/Tatiana_Litvak)
 
 ## Work experience:
 
